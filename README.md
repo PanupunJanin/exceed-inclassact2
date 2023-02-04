@@ -1,2 +1,2 @@
 # inclassact2
-README
+Panupun Janin 6410545568
