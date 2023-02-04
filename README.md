@@ -1,2 +1,2 @@
 # inclassact2
-Panupun Janin 6410545568
+6410545568 Panupun Janin
